@@ -17,5 +17,4 @@ Answer the questions below
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
 
-Why is Nathan so ewie
-\ Line break?
+abcdefghijklmnopqrstuvwxyz now i know my abcs next time won't you sing with me?
