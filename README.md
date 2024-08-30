@@ -17,5 +17,4 @@ Answer the questions below
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
 
-I love Nathan 
-Nathan makes me angry grrrrr
+Commiting Test
