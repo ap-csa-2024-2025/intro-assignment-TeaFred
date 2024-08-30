@@ -17,4 +17,4 @@ Answer the questions below
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
 
-abcdefghijklmnopqrstuvwxyz now i know my abcs next time won't you sing with me?
+one two seven three rockerfeller street
