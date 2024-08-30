@@ -17,4 +17,6 @@ Answer the questions below
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
 
-one two seven three rockerfeller street
+1. Something interesting about me is I have a cat.
+2. Did you grow up coding?
+3. I am a Link Crew leader, I volunteer at St. Joseph's Hospital, I manage volunteers at Nhan Hoa, I do research for my OCSEF project and Exploravision projects, and I mentor middle schoolers in OCSEF. 
